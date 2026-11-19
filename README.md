@@ -1,5 +1,7 @@
 # CS3_2Q_Balingkilat_G6
 
+## Tody Grae A. Amador
+I like spicy stuff
 
 ## Charles Mabi P. Sicat
 I used to be 4 foot now im 5 foot
